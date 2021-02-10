@@ -1,0 +1,2 @@
+# SozOyunu
+Söz Oyunu 🙀😂
